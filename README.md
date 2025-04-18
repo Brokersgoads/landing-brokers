@@ -1,1 +1,1 @@
-Landing page dos corretores da Brokersgoads 🚀
+Landing page da Brokersgoads 🚀
